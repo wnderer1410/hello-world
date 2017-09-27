@@ -1,3 +1,3 @@
 # hello-world
-My first repository
+Hello wnderers
 Coffe addict! Roothless wanderer.
