@@ -1,3 +1,3 @@
 # hello-world
-Hello wnderers
-Coffe addict! Roothless wanderer.
+Hello wnderers.....
+I am a Coffe addict & Roothless wanderer.
